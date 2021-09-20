@@ -1,2 +1,1 @@
-# CrumpledBalls2PRO25
-CrumpledBalls2PRO25
+# CP-2
